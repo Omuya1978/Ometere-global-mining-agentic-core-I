@@ -1,1 +1,0 @@
-# Ometere-global-mining-agentic-core-I
